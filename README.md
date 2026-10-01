@@ -1,0 +1,2 @@
+# premium-wax-jewelry-001-jewelry-wax-carving-pattern-li
+Professional heritage-wax-carving Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Jewelry Wax Carving Pattern Library — fully configured and ready to use - Pre-built data
